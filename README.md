@@ -1,1 +1,0 @@
-# Sad-Cat-for-President
